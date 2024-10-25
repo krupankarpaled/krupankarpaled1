@@ -1,1 +1,0 @@
-# krupankarpaled1
